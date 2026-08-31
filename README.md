@@ -7,3 +7,4 @@
 ## also like my email is kds112301@gmail.com 
 # bleh :3
 ## also who let the dawgs out 
+## I also do music stuff, sciency stuff, arts, etc. etc. stuff.
