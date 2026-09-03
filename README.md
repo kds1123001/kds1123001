@@ -1,5 +1,4 @@
-
-![](./profile-3d-contrib/profile-night-view.svg)
+<img src="./profile-3d-contrib/profile-season-animate.svg" width="100%" alt="3D Contribution Graph" />
 
 ## I hate emojis, but I think I like programming and stuff
 
