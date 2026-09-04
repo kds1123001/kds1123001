@@ -7,4 +7,4 @@
 ## also like my email is kds112301@gmail.com 
 # bleh :3
 ## also who let the dawgs out 
-## I also do music stuff, sciency stuff, arts, paleontology, geology, aircrafts/avionics, military weapons machinery and vehicles like tanks, etc. etc. stuff.
+## I also do music stuff, sciency stuff, arts, paleontology, geology, aircrafts/avionics, military weapons machinery and vehicles like tanks, drawing, animation, origami, etc. etc. stuff.
